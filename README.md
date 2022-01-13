@@ -1,0 +1,2 @@
+# Oceanus
+ The font was inspired by Stanislaw Lem’s novel Solaris.  The novel is about the ultimate futility of attempted communications with the extraterrestrial life inhabiting a distant alien planet named Solaris. The planet is almost completely covered with an ocean of gel that is revealed to be a single, planet-encompassing entity.  This font is an attempt to find common language between Ocean and Human, about their communication, illusion, fight with the fear and incomprehensible logic of water.
